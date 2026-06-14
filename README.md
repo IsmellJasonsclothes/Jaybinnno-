@@ -1,2 +1,1 @@
-#Stalkerrr...it ok stalk the art 
-anatomy? broken 💔
+#Good boy..or rather good girl,..or RATHER GOOD FEMBO-
